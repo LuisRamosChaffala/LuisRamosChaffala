@@ -61,7 +61,7 @@ Apasionado por crear soluciones digitales, automatizar procesos y combinar progr
 
 # 📫 Contacto
 
-📧 Email: luisranoschaffala@gmail.com
+📧 Email: luisramoschaffala@gmail.com
 
 💼 LinkedIn:
 www.linkedin.com/in/luis-ramos-chaffalá-88bb13204
